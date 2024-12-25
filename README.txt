@@ -1,1 +1,1 @@
-Most repositories belonging to Loud Monkey Designs™'s publicly availavle projects are located at @voxxdevv's GitHub account.
+Most repositories for Loud Monkey Designs™’s publicly available projects can be found on @voxxdevv’s GitHub account.
